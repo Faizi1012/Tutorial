@@ -1,2 +1,1 @@
-# Tutorial
-Waisay
+# or sanawo kuggjn
